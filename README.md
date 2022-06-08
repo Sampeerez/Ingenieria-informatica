@@ -1,1 +1,1 @@
-# Ingeniería-informática
+# Ingeniería informática
